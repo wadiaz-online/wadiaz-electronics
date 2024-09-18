@@ -1,1 +1,1 @@
-# wadiaz-electronics
+# WadiaZ-Electronics
